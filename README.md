@@ -22,6 +22,6 @@
 I'm really cool if you give me a chance..
 
 
-pronouns page : https://en.pronouns.page/@R0S1EP0S1ES
+pronouns page : https://en.pronouns.page/@bunniwunniz
 
 my fuckin atabook!!! https://bunniwunniz.atabook.org/

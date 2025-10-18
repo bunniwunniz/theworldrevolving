@@ -2,13 +2,13 @@
 
 
 
-https://rentry.co/loveandkindness 
+[rentry!](https://rentry.co/bunniwunniz)
  <img width="250" height="143" alt="image" src="https://github.com/user-attachments/assets/a84d3a4a-dc6a-4a9a-bce7-3774ed92e7d6" />
 
 
 
 
-
+(creds to the owner of rentry, I cant make one on my own..)
 
 
 
